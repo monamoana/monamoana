@@ -1,4 +1,4 @@
-## Hi there 👋 am monamoana
+## Hi there 👋 am mona
 
 
 
@@ -8,5 +8,5 @@
 - 💬 Ask me about colors and movies
 - 📫 How to reach me: shout to the skies
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: i like cooking,baking/reading/watching
+- ⚡ Fun fact: i like cooking,listening to music/reading/watching
 
